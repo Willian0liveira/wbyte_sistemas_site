@@ -1,1 +1,1 @@
-Projeto site Wbyte Sistemas ®2024
+Projeto site Wbyte Sistemas ©2024
